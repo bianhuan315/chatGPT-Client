@@ -34,7 +34,16 @@
     英语
     简体中文（简体中文）
 
-    
+  ![image](https://github.com/user-attachments/assets/2e35cdbc-e60f-46e1-ac84-95779be694c9)
+  
+  ![image](https://github.com/user-attachments/assets/62eb76d6-4325-4669-987d-d901c78d136a)
+  
+  ![image](https://github.com/user-attachments/assets/63134e55-c880-4f1b-aff8-e1bd454fce79)
+  
+  ![image](https://github.com/user-attachments/assets/47065e70-5a26-4688-ad1f-77c5e2f7bf96)
+
+  ![image](https://github.com/user-attachments/assets/21fc9e32-3339-44d2-82d0-10d5a282eea0)
+
 
 ### FAQ 常见问题
 
